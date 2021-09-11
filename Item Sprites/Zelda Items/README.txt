@@ -1,0 +1,1 @@
+Weapons from a scrapped Zelda mod. Obviously this is copyright infringement, so use these at your own risk.
